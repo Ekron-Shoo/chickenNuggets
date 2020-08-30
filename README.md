@@ -1,0 +1,1 @@
+A chicken nugget is a chicken product made from chicken meat that is breaded or battered, then deep-fried or baked. Invented in the 1950s, chicken nuggets have become a popular fast food restaurant item, as well as widely sold frozen for home use.
